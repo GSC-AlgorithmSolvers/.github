@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-https://kyumin.notion.site/b2ed6cfd1c7c4dc594f2a8aaedad3fb5?pvs=4
+노션 팀 스페이스: https://tin-mochi-678.notion.site/4c04ba8968914c4eb2ab3d0452cfaa64?pvs=4
 
 <!--
 
